@@ -1,4 +1,4 @@
-# A'One of One — A'ja Wilson Contract History
+# A'One of One: A'ja Wilson Contract History
 
 **Built by Kris Smith · The Black Techie**
 
